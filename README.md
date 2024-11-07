@@ -1,0 +1,7 @@
+- 👋 Hi, I'm @Matheus-Fernando-br
+- 👀 I'm interested in working in the programming field
+- 🌱 I'm currently studying Software Engineering at college
+- 💞️ I'm looking to collaborate on projects to intensify my learning
+- 📫 How to contact me -> +55 (31)98676-3652 or matheus1030br@gmail.com
+- 😄 Pronouns: he
+- ⚡ Fun fact: Proactivity and Teamwork are my keywords
